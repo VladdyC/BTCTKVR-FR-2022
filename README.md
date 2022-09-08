@@ -7,4 +7,6 @@ Recommended printing quality: 130-150g papes for the pages, 300g paper for the c
 Download the PDF: https://bitcoin-takeover.com/btctkvr-francais-magazine-2022/
 
 Donate to Grittoshi to thank him for the translation: bc1qhlnm7vjxwahllztfrs0dt0apzy57frrk896adt
+
+
 Buy Vlad a bottle of shampoo: 34eEizvRsgpyDbd2gmVQTsDNjKBJX64VEE
