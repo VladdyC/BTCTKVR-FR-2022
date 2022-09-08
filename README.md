@@ -5,3 +5,4 @@ Spread more Bitcoin knowledge in a stylish, colorful, and topically-diverse form
 
 Recommended printing quality: 130-150g papes for the pages, 300g paper for the covers.
 Donate to Grittoshi to thank him for the translation: 
+Buy Vlad a bottle of shampoo: 34eEizvRsgpyDbd2gmVQTsDNjKBJX64VEE
